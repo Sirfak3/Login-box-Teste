@@ -1,0 +1,1 @@
+Opa. Bom, isso é só um teste de aprendizado, deve estar cheio de erros (nao sei se é possível, mas se ver algum comente). (Não sei se deveria me preocupar com isso, mas não faço a minima ideia se a imagem tem direitos autorais).
